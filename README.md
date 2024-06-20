@@ -1,9 +1,9 @@
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://photos.app.goo.gl/7gEiYUEYP5CFCNCH9'/></a>
+<a><img src='https://photos.app.goo.gl/7gEiYUEYP5CFCNCH9'/></a>
  <h1 align="center"> GURU MD </h1>
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://photos.app.goo.gl/7gEiYUEYP5CFCNCH9'/></a>
       
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗔𝗠+BOTGURU+𝗠𝗗+𝗖𝗥𝗘𝗔𝗧𝗘𝗗+𝗕𝗬+GURU)](https://git.io/typing-svg)
 
